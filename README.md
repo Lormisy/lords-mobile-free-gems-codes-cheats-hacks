@@ -1,2 +1,5 @@
-# lords-mobile-free-gems-codes-cheats-hacks
-Lords Mobile free gems codes generator Cheats Hacks engine script 2022
+# Lords Mobile free gems codes generator Cheats Hacks engine script
+
+Lords Mobile free gems codes generator Cheats Hacks engine script 2022 - Useful heroes in hero mode, serving as commando commanders in large-scale combat. She has a mid-range 5-second freeze, hitting a row. This is usually enough time, oh, to save your lead actress from those bastards attacking your rear. Most importantly, she is a decent Ranger commander, especially in defensive operations, you can use traps. She saw the use of monster hunting. "Tracker" is a good Ranger commander. Under her command, it provides def and ATK enhancements for Rangers. Her management skills and the improvement of ore production speed are nothing special. In hero and fireball mode, you mainly use her as a single target sniper. Her ultimate skill is to shoot an arrow at a single target. Her automatic attack is a conical arrow, and another single target dizzy shot points at the enemy behind. This is useful for suppressing bosses and artillery type enemies, because they tend to hide behind. Lords Mobile codes today
+
+<a href="https://dlscheat.top/lords-mobile/">check now</a>
